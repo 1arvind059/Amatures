@@ -1,2 +1,2 @@
 # Amatures
-social medai
+social media
